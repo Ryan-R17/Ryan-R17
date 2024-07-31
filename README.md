@@ -1,8 +1,3 @@
 ## Hi there 👋
 **Ryan_Rickeummy**
-<!--
-**Ryan-R17/Ryan-R17** ✨
-
-- 17y 7b
-- ...
--->
+![](https://media1.tenor.com/m/0paAweuLpNYAAAAd/kolkoga.gif)
